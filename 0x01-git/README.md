@@ -1,1 +1,1 @@
-Esosa is my wife
+My lovely wife is Esosa
